@@ -5,7 +5,6 @@
 - 📫 How to reach me
 - X/Twitter aamirmasood538
 - Instagram aamir_masood538
-- 
 - 😄 Pronouns: He/His/Him
 
 <!---
